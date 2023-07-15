@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Vortex003
+- 👀 I’m interested in Coding
+- 🌱 I’m currently learning Hacking
